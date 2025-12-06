@@ -1,3 +1,3 @@
-![image alt](https://github.com/twinklingcoral/twinklingcoral/blob/main/Untitled1146_20251206141419.png) 
-![image alt](https://github.com/twinklingcoral/twinklingcoral/blob/main/Untitled1147_20251206141331.png) ᥆ᥒᥣᥡ 𝗍һ᥆sᥱ ᑲᥣᥱssᥱძ ᑲᥡ m᥆᥆ᥒᥣіgһ𝗍 ᥴᥲᥒ 𝗍᥆ᥙᥴһ і𝗍.... `
-![image alt](https://github.com/twinklingcoral/twinklingcoral/blob/main/Untitled1146_20251206141419.png) 
+![image alt](https://github.com/twinklingcoral/twinklingcoral/blob/main/Untitled1146_20251206141959.png) 
+![image alt](https://github.com/twinklingcoral/twinklingcoral/blob/main/Untitled1147_20251206141331.png)᥆ᥒᥣᥡ 𝗍һ᥆sᥱ ᑲᥣᥱssᥱძ ᑲᥡ m᥆᥆ᥒᥣіgһ𝗍 ᥴᥲᥒ 𝗍᥆ᥙᥴһ і𝗍.... `
+![image alt](https://github.com/twinklingcoral/twinklingcoral/blob/main/Untitled1146_20251206141959.png) 
